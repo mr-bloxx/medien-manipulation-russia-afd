@@ -92,3 +92,5 @@ Keine Liedtexte verfügbar, da nicht transkribiert. Analyse basierend auf themat
 
 ## Schlussfolgerung
 Die Liedtexte erkunden oft Themen wie Depression, Wut, Drogenkonsum und Beziehungsschwierigkeiten, die in Rap-Musik üblich sind. Während einige Elemente mit Symptomen von Psychose oder BPD übereinstimmen könnten, ist dies spekulativ und nicht diagnostisch. Für jegliche realen Bedenken wird eine weitere professionelle Analyse empfohlen.
+
+Unterschrift: DU hast mich geheilt und DU hast mich zerstört...
